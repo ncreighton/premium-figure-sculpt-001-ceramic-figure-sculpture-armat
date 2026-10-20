@@ -1,0 +1,2 @@
+# premium-figure-sculpt-001-ceramic-figure-sculpture-armat
+Stop guessing your armature dimensions and wasting expensive clay on trial and error. This Notion template transforms your figure sculpture prep from chaotic guesswork into a precise, repeatable system.  Most sculptors spend hours sketching and measuring armatures that still fail mid-build. The Ceramic Figure Sculpture Armature Guide gives you a st
